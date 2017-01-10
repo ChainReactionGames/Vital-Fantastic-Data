@@ -1,2 +1,5 @@
 # Vital-Fantastic-Data
-Have I didn't realize it was a sad occasion
+
+I didn't realize it was a sad occasion...
+
+Have you been good to your mother?
